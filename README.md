@@ -1,0 +1,2 @@
+# raspisanie
+https://discordapp.com/api/webhooks/768397359860154388/fYBRKO-gZMa8lvEx5Hvb1rnLxqa72MzQwugvImvpeK6EOizgCKCxRjalt_9AsQuxoEDF
